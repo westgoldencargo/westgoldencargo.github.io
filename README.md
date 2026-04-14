@@ -1,1 +1,0 @@
-# westgoldencargo.github.io
